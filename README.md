@@ -18,7 +18,7 @@
 
 ### 🎮 En dehors du code...
 
-*   Gros geek dans l'âme : je passe pas mal de temps sur les jeux vidéo et à bidouiller ou optimiser mes setups.
+*   Gros geek dans l'âme : je passe pas mal de temps sur les jeux vidéo et à bidouiller
 
 ### 📫 Me contacter
 
